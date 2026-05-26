@@ -32,8 +32,9 @@ Established suppliers should have long-term relationships with research institut
 - ❌ Pressure to buy in bulk without a sample option
 
 ---
-
+🔗 **Main website:** [Axion Chemicals](https://axionchemicals.com)
 ## About This Resource
+[Alpha](https://axionchemicals.com/product/alpha-php-boh-php/)
 
 This guide is maintained by **Axion Chemicals** as a free resource for the research community.
 
