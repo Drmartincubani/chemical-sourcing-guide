@@ -42,6 +42,8 @@ For more articles on chemical sourcing and lab best practices, visit our author 
 
 📖 [Dr. Martin Cubani on IndiBlogHub](https://indibloghub.com/creators/cubani)
 
+[Dr martin Cubani](https://gravatar.com/suitradiant70d22e7cb1)
+
 ---
 
 *Last updated: May 2026*
